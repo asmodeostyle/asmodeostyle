@@ -14,3 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+## FAQ
+
+#### What I studied?
+
+Student of asd
+
+#### Question 2
+
+Answer 2
+
